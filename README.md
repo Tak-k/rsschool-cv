@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Tak-k.github.io/rsschool-cv/cv
